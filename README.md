@@ -10,3 +10,8 @@ maybe newborn man, ha.
 </br>
 </br>new guy</br>
 <img src="http://r.photo.store.qq.com/psb?/V10reKAA3fEUvF/a7NcALyNktvxaamp3dJSMCPzQt016r4Fc*a5e*hAQCo!/r/dAkBAAAAAAAA" width = "250" height = "250" align=center />
+
+啊
+=
+啊
+-
