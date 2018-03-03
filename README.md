@@ -1,6 +1,6 @@
 # HelloHalo
 kid work</br>
-maybe newborn man, ha.
+Just some pictures
 ## so just do something new
 - classification
 - settle
